@@ -5,8 +5,6 @@
 
 - 🔭 I graduated from **Faculty of Computer Science & Artificial intelligence - Helwan university**
 
-- 👯 I’m looking for **a job opportunity**
-
 - 📫 How to reach me **salmaosmann21@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1u7sP1KZQ6iCgt7e8ixmGGW4-WcUPirL1/view?usp=sharing](https://drive.google.com/file/d/1u7sP1KZQ6iCgt7e8ixmGGW4-WcUPirL1/view?usp=sharing)
