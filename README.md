@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **salmaosmann21@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1u7sP1KZQ6iCgt7e8ixmGGW4-WcUPirL1/view?usp=sharing](https://drive.google.com/file/d/1u7sP1KZQ6iCgt7e8ixmGGW4-WcUPirL1/view?usp=sharing)
+- 📄 Know about my experiences https://drive.google.com/file/d/1VQeYYJOCgaWBYJsyWL--8n9_uj1e6QiA/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
